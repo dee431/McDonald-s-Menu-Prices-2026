@@ -3,6 +3,17 @@
 
 <img width="447" height="447" alt="image" src="https://github.com/user-attachments/assets/2aaa4104-f7f7-4d4a-857b-f04473142fd4" />
 
+<img width="508" height="390" alt="image" src="https://github.com/user-attachments/assets/a6cd418b-9f0e-400c-8a2c-13265a0713e3" />
+
+<img width="497" height="388" alt="image" src="https://github.com/user-attachments/assets/528740b9-8517-42bc-b108-5f0997439885" />
+
+<img width="430" height="453" alt="image" src="https://github.com/user-attachments/assets/536f9b20-a0a4-4354-a0a5-560a5b232ae2" />
+
+<img width="145" height="303" alt="image" src="https://github.com/user-attachments/assets/aa41041b-1831-4a37-a134-64b32b76e519" />
+
+<img width="532" height="540" alt="image" src="https://github.com/user-attachments/assets/12cc1a8a-0b9f-4b65-be6b-fdf99dcf8146" />
+
+<img width="496" height="404" alt="image" src="https://github.com/user-attachments/assets/14198bcd-980d-48f3-954f-86230f98468d" />
 
 
 🍔 McDonald's Menu & Prices (2026) 🍟
